@@ -12,10 +12,5 @@
 - 🍿 Fun fact: Penguino is penguino :D
 
 ## Thanks for stopping by! ✌
-###### yoshi is cool 😎
-
-
-
-
-
+yoshi is cool 😎
 ###### and also cute
